@@ -1,0 +1,84 @@
+---
+description: "Recipe of Ultimate Crab Cakes"
+title: "Recipe of Ultimate Crab Cakes"
+slug: 1200-recipe-of-ultimate-crab-cakes
+date: 2020-06-10T03:38:59.963Z
+image: https://img-global.cpcdn.com/recipes/6357584544006144/751x532cq70/crab-cakes-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6357584544006144/751x532cq70/crab-cakes-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6357584544006144/751x532cq70/crab-cakes-recipe-main-photo.jpg
+author: Jean Wallace
+ratingvalue: 4.7
+reviewcount: 8
+recipeingredient:
+- "8 oz Package of crab meat coarsely chopped real lump or imitation is fine"
+- "2 cup Seasoned bread crumbs reserve about 12 cup"
+- "1/4 cup Minced onion"
+- "1/2 A Jalapeo minced or about 4 minced slices from a jar"
+- "1/4 cup Mayo"
+- "1 Old bay seasoning"
+- "1 tbsp Oil"
+recipeinstructions:
+- "Add crab meat, onions and jalapeños to a mixing bowl. Season with old bay seasoning to taste. Add 1 and 1/2 cups of bread crumbs to crabmeat mixture."
+- "Now Add mayo and slowly mix with a fork until mixture is thoroughly moist. If it seems a little too dry you can always add about a teaspoon or so. You want it to be a little firm so the crab cakes won&#39;t fall apart while frying. Form mixture into balls and let set in the refrigerator for at least 30 mins."
+- "Add the remaining bread crumbs to a plate. Set aside. Pour oil in skillet and set range eye to medium heat. Roll each crabmeat ball in the breadcrumbs. Make sure they&#39;re coated evenly."
+- "Place crabmeat ball in between your hands and press lightly enough to form patties. Add to skillet. Cook patties on each side for about 6 minutes or so or until golden brown on each side."
+- "Drain on paper towels"
+- "Serve with a salad and remoulade"
+categories:
+- Recipe
+tags:
+- crab
+- cakes
+
+katakunci: crab cakes 
+nutrition: 203 calories
+recipecuisine: American
+preptime: "PT24M"
+cooktime: "PT46M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Crab Cakes](https://img-global.cpcdn.com/recipes/6357584544006144/751x532cq70/crab-cakes-recipe-main-photo.jpg)
+
+Hello everybody, I hope you're having an incredible day today. Today, we're going to make a special dish, crab cakes. It is one of my favorites food recipes. This time, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
+
+
+
+Crab Cakes is one of the most well liked of current trending foods in the world. It is easy, it's quick, it tastes yummy. It's enjoyed by millions every day. They are nice and they look wonderful. Crab Cakes is something which I've loved my whole life.
+
+
+To get started with this recipe, we have to prepare a few ingredients. You can have crab cakes using 7 ingredients and 6 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Crab Cakes:
+
+1. Make ready 8 oz Package of crab meat coarsely chopped (real lump or imitation is fine)
+1. Prepare 2 cup Seasoned bread crumbs (reserve about 1/2 cup)
+1. Prepare 1/4 cup Minced onion
+1. Make ready 1/2 A Jalapeño minced or about 4 minced slices from a jar
+1. Take 1/4 cup Mayo
+1. Prepare 1 Old bay seasoning
+1. Prepare 1 tbsp Oil
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Crab Cakes:
+
+1. Add crab meat, onions and jalapeños to a mixing bowl. Season with old bay seasoning to taste. Add 1 and 1/2 cups of bread crumbs to crabmeat mixture.
+1. Now Add mayo and slowly mix with a fork until mixture is thoroughly moist. If it seems a little too dry you can always add about a teaspoon or so. You want it to be a little firm so the crab cakes won&#39;t fall apart while frying. Form mixture into balls and let set in the refrigerator for at least 30 mins.
+1. Add the remaining bread crumbs to a plate. Set aside. Pour oil in skillet and set range eye to medium heat. Roll each crabmeat ball in the breadcrumbs. Make sure they&#39;re coated evenly.
+1. Place crabmeat ball in between your hands and press lightly enough to form patties. Add to skillet. Cook patties on each side for about 6 minutes or so or until golden brown on each side.
+1. Drain on paper towels
+1. Serve with a salad and remoulade
+
+
+
+
+So that is going to wrap this up with this special food crab cakes recipe. Thanks so much for reading. I am confident you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

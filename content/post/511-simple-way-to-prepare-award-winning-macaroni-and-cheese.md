@@ -1,0 +1,89 @@
+---
+description: "Simple Way to Prepare Award-winning Macaroni and cheese"
+title: "Simple Way to Prepare Award-winning Macaroni and cheese"
+slug: 511-simple-way-to-prepare-award-winning-macaroni-and-cheese
+date: 2020-08-18T11:29:16.878Z
+image: https://img-global.cpcdn.com/recipes/27aa3b8164510303/751x532cq70/macaroni-and-cheese-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/27aa3b8164510303/751x532cq70/macaroni-and-cheese-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/27aa3b8164510303/751x532cq70/macaroni-and-cheese-recipe-main-photo.jpg
+author: Mary Sims
+ratingvalue: 3.7
+reviewcount: 10
+recipeingredient:
+- "1/2 cup small shells"
+- "2 cups shredded cheese any will do"
+- "1 cup milk"
+- "2 tbs cornstarch"
+- "1/4 cup parmesan"
+- " To taste"
+- " Paprika"
+- " Salt"
+- " Pepper"
+- " Chives"
+recipeinstructions:
+- "Boil the shells for about 10 min on high"
+- "Strain the shells and leave aside"
+- "In a pot mix cornstarch and milk on medium heat until dissolved then add cheese, spices, and chives"
+- "Add shells and continue mixing on high until everything is fully mixed"
+- "Serve in a bowl, top with parmesan, and enjoy"
+categories:
+- Recipe
+tags:
+- macaroni
+- and
+- cheese
+
+katakunci: macaroni and cheese 
+nutrition: 163 calories
+recipecuisine: American
+preptime: "PT18M"
+cooktime: "PT51M"
+recipeyield: "4"
+recipecategory: Dessert
+
+---
+
+
+![Macaroni and cheese](https://img-global.cpcdn.com/recipes/27aa3b8164510303/751x532cq70/macaroni-and-cheese-recipe-main-photo.jpg)
+
+Hey everyone, it's Drew, welcome to my recipe site. Today, I will show you a way to make a special dish, macaroni and cheese. It is one of my favorites. For mine, I am going to make it a little bit unique. This is gonna smell and look delicious.
+
+Macaroni and cheese is one of the most well liked of recent trending foods on earth. It is easy, it's quick, it tastes delicious. It's appreciated by millions every day. They are nice and they look fantastic. Macaroni and cheese is something that I've loved my entire life.
+
+From creamy baked macaroni and cheese to stovetop versions with bacon, explore hundreds of easy, comforting mac and cheese recipes. Easy homemade mac and cheese recipe. Creamy, cheesy, rich and super delicious macaroni and cheese recipe.
+
+
+To begin with this particular recipe, we have to prepare a few components. You can cook macaroni and cheese using 10 ingredients and 5 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Macaroni and cheese:
+
+1. Take 1/2 cup small shells
+1. Make ready 2 cups shredded cheese (any will do)
+1. Make ready 1 cup milk
+1. Prepare 2 tbs cornstarch
+1. Take 1/4 cup parmesan
+1. Get  To taste:
+1. Make ready  Paprika
+1. Prepare  Salt
+1. Get  Pepper
+1. Prepare  Chives
+
+
+I have never made macaroni and cheese from scratch before Super delicious Mac and Cheese! This extra-special macaroni and cheese is made with a mixture of three cheeses: cheddar, Parmesan, and goat cheese, along with mixed Extra Special Three-Cheese Macaroni and Cheese. Macaroni and cheese is an all-purpose comfort food, ready and able to assist you with any life That&#39;s important with this macaroni and cheese since we&#39;re baking it in the oven, something that can. Make your favourite macaroni and cheese recipe from the list below. 
+
+<!--inarticleads2-->
+
+##### Steps to make Macaroni and cheese:
+
+1. Boil the shells for about 10 min on high
+1. Strain the shells and leave aside
+1. In a pot mix cornstarch and milk on medium heat until dissolved then add cheese, spices, and chives
+1. Add shells and continue mixing on high until everything is fully mixed
+1. Serve in a bowl, top with parmesan, and enjoy
+
+
+Baked macaroni and cheese doesn&#39;t have to be complicated with layers of ingredients to be the This homemade baked macaroni and cheese is my most favorite and has pleased crowds, small. Mac &#39;n&#39; cheese is comfort food at its best. Learn how to make macaroni cheese with our easy recipes, then find your perfect take on the creamy pasta bake. My microwave macaroni and cheese is quick to whip up and calls for just a few ingredients, making this mug recipe a fan favorite. Yall this baked macaroni and cheese is FULL OF SOUL!! 
+
+So that is going to wrap it up with this exceptional food macaroni and cheese recipe. Thanks so much for reading. I am sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

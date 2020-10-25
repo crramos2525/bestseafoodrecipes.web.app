@@ -1,0 +1,89 @@
+---
+description: "Simple Way to Prepare Award-winning Creamy seafood pasta"
+title: "Simple Way to Prepare Award-winning Creamy seafood pasta"
+slug: 2387-simple-way-to-prepare-award-winning-creamy-seafood-pasta
+date: 2020-09-26T06:33:19.739Z
+image: https://img-global.cpcdn.com/recipes/5f0b99e8b2cf0380/751x532cq70/creamy-seafood-pasta-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5f0b99e8b2cf0380/751x532cq70/creamy-seafood-pasta-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5f0b99e8b2cf0380/751x532cq70/creamy-seafood-pasta-recipe-main-photo.jpg
+author: Arthur Thomas
+ratingvalue: 4.3
+reviewcount: 12
+recipeingredient:
+- "1 packet pasta cooked"
+- "1 onion chopped"
+- "4 cloves garlic"
+- "1 big habanero pepper"
+- "2 cups mushroom chopped"
+- "1/4 cup white wine"
+- " Seafood Mix"
+- " Calamari tubes"
+- "3 cups prawns"
+- "1 cup cream"
+- " Salt and pepper"
+recipeinstructions:
+- "Cook pasta to packet instructions. In a separate pan, fry onion garlic and add mushrooms and cook for 5 minutes."
+- "Add wine and bring to the boil. Remove mushrooms. In the same pot fry garlic the add seafood and cook for a minute."
+- "Quickly mushrooms stir, next add cream mix and cream and stir. Switch off heat."
+- "Add pasta stir and cover for 3 minutes. Add salt and pepper and serve immediately."
+categories:
+- Recipe
+tags:
+- creamy
+- seafood
+- pasta
+
+katakunci: creamy seafood pasta 
+nutrition: 128 calories
+recipecuisine: American
+preptime: "PT21M"
+cooktime: "PT52M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Creamy seafood pasta](https://img-global.cpcdn.com/recipes/5f0b99e8b2cf0380/751x532cq70/creamy-seafood-pasta-recipe-main-photo.jpg)
+
+Hey everyone, it's Jim, welcome to my recipe site. Today, I will show you a way to make a distinctive dish, creamy seafood pasta. It is one of my favorites. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
+
+Creamy seafood pasta is one of the most well liked of recent trending meals in the world. It's easy, it is fast, it tastes delicious. It is enjoyed by millions daily. They're fine and they look wonderful. Creamy seafood pasta is something which I have loved my whole life.
+
+Creamy Seafood Pasta is a delicious creamy pasta dish that makes use of linguine, shrimp, bay scallops, mussels, and clams. This is a comforting dish that you can enjoy for lunch or dinner. Our creamy seafood pasta bake, seafood casserole will Impress.
+
+
+To begin with this particular recipe, we must first prepare a few components. You can have creamy seafood pasta using 11 ingredients and 4 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Creamy seafood pasta:
+
+1. Take 1 packet pasta cooked
+1. Get 1 onion chopped
+1. Make ready 4 cloves garlic
+1. Prepare 1 big habanero pepper
+1. Take 2 cups mushroom chopped
+1. Prepare 1/4 cup white wine
+1. Prepare  Seafood Mix
+1. Get  Calamari tubes
+1. Take 3 cups prawns
+1. Get 1 cup cream
+1. Take  Salt and pepper
+
+
+A must try creamy shrimp Alfredo pasta! I sent some leftovers of this pasta. This Cream Sauce Seafood Pasta is luxuriously creamy, elegant, and easy to make! Two types of linguini pasta are tossed with a gorgeous medley of seafood in a heavenly white wine cream sauce! 
+
+<!--inarticleads2-->
+
+##### Instructions to make Creamy seafood pasta:
+
+1. Cook pasta to packet instructions. In a separate pan, fry onion garlic and add mushrooms and cook for 5 minutes.
+1. Add wine and bring to the boil. Remove mushrooms. In the same pot fry garlic the add seafood and cook for a minute.
+1. Quickly mushrooms stir, next add cream mix and cream and stir. Switch off heat.
+1. Add pasta stir and cover for 3 minutes. Add salt and pepper and serve immediately.
+
+
+Creamy Shrimp Fettuccine Pasta With Homemade Alfredo Sauceworld of cooking. Seafood Pasta is the perfect way to impress your friends and family and its actually really easily! Our seafood of choice is scallops and shrimp because of their similar cook times, but the recipe could be. Add the wine that the seafood was cooked in as well as the remaining wine to the sauce. Cook the pasta until al dente. 
+
+So that is going to wrap it up with this exceptional food creamy seafood pasta recipe. Thanks so much for your time. I am sure you will make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

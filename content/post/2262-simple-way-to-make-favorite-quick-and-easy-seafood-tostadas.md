@@ -1,0 +1,95 @@
+---
+description: "Simple Way to Make Favorite Quick and easy seafood tostadas."
+title: "Simple Way to Make Favorite Quick and easy seafood tostadas."
+slug: 2262-simple-way-to-make-favorite-quick-and-easy-seafood-tostadas
+date: 2020-09-09T23:46:24.721Z
+image: https://img-global.cpcdn.com/recipes/4813457682071552/751x532cq70/quick-and-easy-seafood-tostadas-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/4813457682071552/751x532cq70/quick-and-easy-seafood-tostadas-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/4813457682071552/751x532cq70/quick-and-easy-seafood-tostadas-recipe-main-photo.jpg
+author: Lela Butler
+ratingvalue: 3.5
+reviewcount: 5
+recipeingredient:
+- " Seafood filling"
+- "8 oz imitation crab shredded w fork or small chopper"
+- "1 can corn rinseddrained"
+- "1 can black beans rinseddrained"
+- "1/2 cucumber quartered and thinly sliced"
+- "1/2 cup your favorite tomatoes finely chopped I used cherry cut in 12"
+- "1/4 cup mayonnaise plain Greek yogurt would work smashingly"
+- "1 tbsp olive oil extra virgin"
+- "1 tbsp lime or lemon juice"
+- " fresh cilantro rough cut w kitchen sheers"
+- " garlic salt"
+- " ground black pepper"
+- "10 tostada shells"
+recipeinstructions:
+- "Preheat oven to 250."
+- "Place tostada shells on cookie sheets in a single layer. Warm till desired crispness. Approx 5-10 minutes."
+- "In a medium sized mixing bowl place all seafood mix ingredients and toss till well incorporated."
+- "Gently scoop seafood mix on tostada shells. Top with Mexican cheese or hot sauce and enjoy with your clann!"
+- "Don&#39;t forget to post your pics too."
+categories:
+- Recipe
+tags:
+- quick
+- and
+- easy
+
+katakunci: quick and easy 
+nutrition: 283 calories
+recipecuisine: American
+preptime: "PT27M"
+cooktime: "PT38M"
+recipeyield: "2"
+recipecategory: Dessert
+
+---
+
+
+![Quick and easy seafood tostadas.](https://img-global.cpcdn.com/recipes/4813457682071552/751x532cq70/quick-and-easy-seafood-tostadas-recipe-main-photo.jpg)
+
+Hey everyone, hope you are having an amazing day today. Today, we're going to make a special dish, quick and easy seafood tostadas.. It is one of my favorites. For mine, I'm gonna make it a little bit unique. This will be really delicious.
+
+Quick and easy seafood tostadas. is one of the most popular of current trending meals in the world. It's simple, it's quick, it tastes yummy. It's enjoyed by millions every day. They are nice and they look fantastic. Quick and easy seafood tostadas. is something that I have loved my whole life.
+
+Quick And Easy Tostadas have a lot of versatility. This is also a frugal meal idea if you&#39;re trying to stretch a grocery budget. Quick and Easy Tostadas are great year-round and there are so many ways you can make them.
+
+
+To begin with this recipe, we must prepare a few components. You can cook quick and easy seafood tostadas. using 13 ingredients and 5 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Quick and easy seafood tostadas.:
+
+1. Take  Seafood filling
+1. Take 8 oz imitation crab (shredded w/ fork or small chopper)
+1. Make ready 1 can corn (rinsed/drained)
+1. Make ready 1 can black beans (rinsed/drained)
+1. Get 1/2 cucumber (quartered and thinly sliced)
+1. Take 1/2 cup your favorite tomatoes finely chopped (I used cherry cut in 1/2)
+1. Get 1/4 cup mayonnaise (plain Greek yogurt would work smashingly)
+1. Take 1 tbsp olive oil, extra virgin
+1. Make ready 1 tbsp lime or lemon juice
+1. Prepare  fresh cilantro rough cut w/ kitchen sheers
+1. Make ready  garlic salt
+1. Make ready  ground black pepper
+1. Get 10 tostada shells
+
+
+They&#39;re so fresh and tasty and a meal that everyone gets excited for. Quick &amp; Easy Highly Rated Healthy Surprise Me. I&#39;m working on that I morphed them into these tostadas for dinner in no time. Refried beans are something I always keep in my pantry. 
+
+<!--inarticleads2-->
+
+##### Steps to make Quick and easy seafood tostadas.:
+
+1. Preheat oven to 250.
+1. Place tostada shells on cookie sheets in a single layer. Warm till desired crispness. Approx 5-10 minutes.
+1. In a medium sized mixing bowl place all seafood mix ingredients and toss till well incorporated.
+1. Gently scoop seafood mix on tostada shells. Top with Mexican cheese or hot sauce and enjoy with your clann!
+1. Don&#39;t forget to post your pics too.
+
+
+I like this kind from Whole Foods that already has a touch of chili and lime flavor. Crisp tortillas are piled high with toppings in the classic Mexican dish called tostadas. For the busy nights during winter months. Mexican food is always a favourite in this house. Bean Tostadas come together quickly for a great meal with tortillas, refried beans, cheese, lettuce, tomatoes, and Simple Bean Tostadas come together quickly and easily for an affordable meatless meal, with tortillas What&#39;s a double win meal, you ask? 
+
+So that's going to wrap this up with this special food quick and easy seafood tostadas. recipe. Thank you very much for reading. I'm sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

@@ -1,0 +1,95 @@
+---
+description: "How to Prepare Homemade Donnetta&amp;#39;s Stuffed Italian Shells"
+title: "How to Prepare Homemade Donnetta&amp;#39;s Stuffed Italian Shells"
+slug: 606-how-to-prepare-homemade-donnetta-and-39-s-stuffed-italian-shells
+date: 2020-10-07T14:47:36.811Z
+image: https://img-global.cpcdn.com/recipes/5144917164687360/751x532cq70/donnettas-stuffed-italian-shells-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5144917164687360/751x532cq70/donnettas-stuffed-italian-shells-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5144917164687360/751x532cq70/donnettas-stuffed-italian-shells-recipe-main-photo.jpg
+author: Maria Cooper
+ratingvalue: 3.6
+reviewcount: 14
+recipeingredient:
+- " Italian dish"
+- "1 1/2 lb lean ground beef"
+- "1/2 lb sausage"
+- "1 small onion chopped fine"
+- "1/2 tsp oregano"
+- "1 tbsp garlic pepper"
+- "18 each large pasta shells"
+- "2 cup shredded mozzarella cheese"
+- "4 cup good marinara sauce"
+recipeinstructions:
+- "Brown ground beef and sausage until done. Drain if it has an excess of grease."
+- "While the meat is cooking, boil the shells in salted water with a little olive oil. Cook until al dents, drain and rinse in cold water and set aside."
+- "To assemble in a 9×13 pan. Spray pan lightly with cooking spray."
+- "Spread a thin layer of sauce in the bottom of the pan."
+- "Fill each shell with meat full but not bulging."
+- "Place the filled shells in the pan."
+- "Top filled shells with remaining sauce. (Use a little more if you like.)"
+- "Sprinkle mozzarella on top of sauce."
+- "Bake at 350° for 30 to 45 minutes or until bubbly and cheese is melted."
+categories:
+- Recipe
+tags:
+- donnettas
+- stuffed
+- italian
+
+katakunci: donnettas stuffed italian 
+nutrition: 287 calories
+recipecuisine: American
+preptime: "PT28M"
+cooktime: "PT60M"
+recipeyield: "3"
+recipecategory: Dinner
+
+---
+
+
+![Donnetta&#39;s Stuffed Italian Shells](https://img-global.cpcdn.com/recipes/5144917164687360/751x532cq70/donnettas-stuffed-italian-shells-recipe-main-photo.jpg)
+
+Hey everyone, it's Drew, welcome to our recipe site. Today, we're going to make a special dish, donnetta&#39;s stuffed italian shells. One of my favorites. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+
+Donnetta&#39;s Stuffed Italian Shells is one of the most popular of current trending foods on earth. It is easy, it is quick, it tastes delicious. It's appreciated by millions every day. Donnetta&#39;s Stuffed Italian Shells is something that I have loved my entire life. They are fine and they look wonderful.
+
+A Deliciously Cheesy Dish filled with simple, fresh ingredients! Visit my blog www.atlarastable.com to find this recipe and others. You can also find me on.
+
+
+To begin with this particular recipe, we must prepare a few ingredients. You can have donnetta&#39;s stuffed italian shells using 9 ingredients and 9 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Donnetta&#39;s Stuffed Italian Shells:
+
+1. Make ready  Italian dish
+1. Get 1 1/2 lb lean ground beef
+1. Make ready 1/2 lb sausage
+1. Make ready 1 small onion chopped fine
+1. Get 1/2 tsp oregano
+1. Make ready 1 tbsp garlic pepper
+1. Get 18 each large pasta shells
+1. Get 2 cup shredded mozzarella cheese
+1. Prepare 4 cup good marinara sauce
+
+
+It&#39;s comfort food at its best. These Italian Stuffed Shells are the best! My all time favorite stuffed shells Creamy, cheesy, delicious! I stuffed them with seasoned meat and Classic Ricotta Stuffed Shells made with three cheese ricotta filling and marinara sauce. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Donnetta&#39;s Stuffed Italian Shells:
+
+1. Brown ground beef and sausage until done. Drain if it has an excess of grease.
+1. While the meat is cooking, boil the shells in salted water with a little olive oil. Cook until al dents, drain and rinse in cold water and set aside.
+1. To assemble in a 9×13 pan. Spray pan lightly with cooking spray.
+1. Spread a thin layer of sauce in the bottom of the pan.
+1. Fill each shell with meat full but not bulging.
+1. Place the filled shells in the pan.
+1. Top filled shells with remaining sauce. (Use a little more if you like.)
+1. Sprinkle mozzarella on top of sauce.
+1. Bake at 350° for 30 to 45 minutes or until bubbly and cheese is melted.
+
+
+This stuffed shells recipe is extra cheesy and made with. Recipe for Italian Stuffed Shells - This is really pretty easy to make and true Italian comfort food! It is a great twist on traditional lasagna. Bring a large pot of salted water to boil. Cook jumbo shells until al dente. 
+
+So that is going to wrap it up for this exceptional food donnetta&#39;s stuffed italian shells recipe. Thanks so much for reading. I'm confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

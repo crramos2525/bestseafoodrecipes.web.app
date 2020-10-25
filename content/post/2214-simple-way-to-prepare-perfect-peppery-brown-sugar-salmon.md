@@ -1,0 +1,79 @@
+---
+description: "Simple Way to Prepare Perfect Peppery brown sugar salmon"
+title: "Simple Way to Prepare Perfect Peppery brown sugar salmon"
+slug: 2214-simple-way-to-prepare-perfect-peppery-brown-sugar-salmon
+date: 2020-08-14T17:33:28.282Z
+image: https://img-global.cpcdn.com/recipes/45034110/751x532cq70/peppery-brown-sugar-salmon-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/45034110/751x532cq70/peppery-brown-sugar-salmon-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/45034110/751x532cq70/peppery-brown-sugar-salmon-recipe-main-photo.jpg
+author: Jon Carlson
+ratingvalue: 4.7
+reviewcount: 12
+recipeingredient:
+- "1 1/2 lb salmon fillets boneless"
+- "1 tbsp butter melted"
+- "4 tbsp brown sugar"
+- "1/2 tsp onion powder"
+- "1/2 tsp lemon pepper seasoning"
+- "1/4 tsp cracked pepper"
+recipeinstructions:
+- "preheat oven 425°"
+- "pat salmon fillets dry, and brush with butter"
+- "combine seasonings in bowl &amp; mix. sprinkle on salmon and press down softly"
+- "on lightly greased backing sheet or foil bake 20-25 mins"
+categories:
+- Recipe
+tags:
+- peppery
+- brown
+- sugar
+
+katakunci: peppery brown sugar 
+nutrition: 299 calories
+recipecuisine: American
+preptime: "PT25M"
+cooktime: "PT48M"
+recipeyield: "1"
+recipecategory: Dessert
+
+---
+
+
+![Peppery brown sugar salmon](https://img-global.cpcdn.com/recipes/45034110/751x532cq70/peppery-brown-sugar-salmon-recipe-main-photo.jpg)
+
+Hello everybody, it is Drew, welcome to my recipe page. Today, I'm gonna show you how to make a distinctive dish, peppery brown sugar salmon. It is one of my favorites. For mine, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+
+Thaw salmon and rinse with cold water. Pat dry with a paper towel. Place salmon in a lightly greased baking dish.
+
+Peppery brown sugar salmon is one of the most popular of recent trending foods in the world. It is appreciated by millions daily. It's simple, it's quick, it tastes delicious. Peppery brown sugar salmon is something which I've loved my entire life. They're fine and they look fantastic.
+
+
+To get started with this recipe, we have to first prepare a few components. You can have peppery brown sugar salmon using 6 ingredients and 4 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Peppery brown sugar salmon:
+
+1. Prepare 1 1/2 lb salmon fillets (boneless)
+1. Make ready 1 tbsp butter, melted
+1. Make ready 4 tbsp brown sugar
+1. Make ready 1/2 tsp onion powder
+1. Get 1/2 tsp lemon pepper seasoning
+1. Get 1/4 tsp cracked pepper
+
+
+This Peppery Brown Sugar Salmon comes from Food.com. It&#39;s hard to fight the peppery brown sugar rub, the way it caramelizes, especially at the edges of the salmon. And it doesn&#39;t just form a crust; it infuses mouth-watering spicy sweetness into the entire fish. Brown Sugar Broiled Salmon is one of those recipes that is a great base for adding your own touch. 
+
+<!--inarticleads2-->
+
+##### Steps to make Peppery brown sugar salmon:
+
+1. preheat oven 425°
+1. pat salmon fillets dry, and brush with butter
+1. combine seasonings in bowl &amp; mix. sprinkle on salmon and press down softly
+1. on lightly greased backing sheet or foil bake 20-25 mins
+
+
+I added cayenne pepper to make the glaze spicy. Off the top of my head, here are some other ideas: lemon or lime zest (not juice), garlic and/or ginger powder, Chinese. Marinate your salmon fillets in a mixture of soy sauce, brown sugar, honey, and red pepper flakes for a tasty glazed main course. This recipe is the most delicious salmon recipe, easy to prepare and very refreshing. Everyone that ate this dish loved it. firmly packed brown sugar, vegetable oil, salad, salmon fillets. 
+
+So that's going to wrap this up with this exceptional food peppery brown sugar salmon recipe. Thanks so much for your time. I'm sure that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -1,0 +1,97 @@
+---
+description: "Easiest Way to Prepare Perfect Taro Root Dumpling with Imitation Crab Meat Sauce"
+title: "Easiest Way to Prepare Perfect Taro Root Dumpling with Imitation Crab Meat Sauce"
+slug: 935-easiest-way-to-prepare-perfect-taro-root-dumpling-with-imitation-crab-meat-sauce
+date: 2020-06-25T19:57:34.001Z
+image: https://img-global.cpcdn.com/recipes/5014450949062656/751x532cq70/taro-root-dumpling-with-imitation-crab-meat-sauce-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5014450949062656/751x532cq70/taro-root-dumpling-with-imitation-crab-meat-sauce-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5014450949062656/751x532cq70/taro-root-dumpling-with-imitation-crab-meat-sauce-recipe-main-photo.jpg
+author: Harvey Martin
+ratingvalue: 3
+reviewcount: 7
+recipeingredient:
+- "250 grams net weight  Taro root"
+- "1 Hanpen"
+- "1 Katakuriko for the rice dumplings"
+- "5 stick Imitation crab meat"
+- "1/2 pack Daikon radish sprouts"
+- "500 ml Water"
+- "1 tbsp Dashi stock granules"
+- "1 tsp Mirin"
+- "1 tsp Soy sauce"
+- "1 pinch Salt"
+- "1 tbsp each Katakuriko and water"
+- "1 Vegetable oil for deep frying"
+recipeinstructions:
+- "Peel the skin off the taro potatoes, wrap in plastic wrap, and microwave until soft (about 6~9 minutes)."
+- "Place Step 1 and the hanpen into a food processor and blend together."
+- "When Step 2 is completely cooled, cut it in 5 pieces and roll them into balls after coating your hands with katakuriko."
+- "Fry the rice dumplings in vegetable oil until golden brown on the surface (about 2-3 minutes)."
+- "Add water and the ◎ ingredients to a pot, bring to a boil, add the cut and washed daikon radish sprouts and shredded imitation crab meat, and bring to a boil."
+- "Stir in the katakuriko dissolved in water into Step 5 over low heat."
+- "Place the fried rice dumplings into a dish, top with Step 6, and it is done."
+categories:
+- Recipe
+tags:
+- taro
+- root
+- dumpling
+
+katakunci: taro root dumpling 
+nutrition: 216 calories
+recipecuisine: American
+preptime: "PT26M"
+cooktime: "PT43M"
+recipeyield: "3"
+recipecategory: Dinner
+
+---
+
+
+![Taro Root Dumpling with Imitation Crab Meat Sauce](https://img-global.cpcdn.com/recipes/5014450949062656/751x532cq70/taro-root-dumpling-with-imitation-crab-meat-sauce-recipe-main-photo.jpg)
+
+Hey everyone, it is me, Dave, welcome to our recipe site. Today, I'm gonna show you how to prepare a special dish, taro root dumpling with imitation crab meat sauce. One of my favorites food recipes. For mine, I will make it a little bit unique. This is gonna smell and look delicious.
+
+
+
+Taro Root Dumpling with Imitation Crab Meat Sauce is one of the most well liked of recent trending foods on earth. It is appreciated by millions every day. It is easy, it is quick, it tastes delicious. They're fine and they look wonderful. Taro Root Dumpling with Imitation Crab Meat Sauce is something which I have loved my whole life.
+
+
+To begin with this recipe, we must first prepare a few components. You can have taro root dumpling with imitation crab meat sauce using 12 ingredients and 7 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Taro Root Dumpling with Imitation Crab Meat Sauce:
+
+1. Prepare 250 grams net weight  Taro root
+1. Get 1 Hanpen
+1. Make ready 1 Katakuriko (for the rice dumplings)
+1. Prepare 5 stick Imitation crab meat
+1. Get 1/2 pack Daikon radish sprouts
+1. Take 500 ml Water
+1. Prepare 1 tbsp ◎Dashi stock granules
+1. Get 1 tsp ◎Mirin
+1. Prepare 1 tsp ◎Soy sauce
+1. Prepare 1 pinch ◎Salt
+1. Make ready 1 tbsp each Katakuriko and water
+1. Prepare 1 Vegetable oil (for deep frying)
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Taro Root Dumpling with Imitation Crab Meat Sauce:
+
+1. Peel the skin off the taro potatoes, wrap in plastic wrap, and microwave until soft (about 6~9 minutes).
+1. Place Step 1 and the hanpen into a food processor and blend together.
+1. When Step 2 is completely cooled, cut it in 5 pieces and roll them into balls after coating your hands with katakuriko.
+1. Fry the rice dumplings in vegetable oil until golden brown on the surface (about 2-3 minutes).
+1. Add water and the ◎ ingredients to a pot, bring to a boil, add the cut and washed daikon radish sprouts and shredded imitation crab meat, and bring to a boil.
+1. Stir in the katakuriko dissolved in water into Step 5 over low heat.
+1. Place the fried rice dumplings into a dish, top with Step 6, and it is done.
+
+
+
+
+So that's going to wrap it up with this special food taro root dumpling with imitation crab meat sauce recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
